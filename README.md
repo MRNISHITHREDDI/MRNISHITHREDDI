@@ -8,7 +8,7 @@
 
 - 💬 Ask me about ...
 
-- 📫 How to reach me: [𝙽𝙸𝚂𝙷𝙸𝚃𝙷𝚁𝙴𝙳𝙳𝙸](htpps://t.me/FIDO_RAJA)
+- 📫 How to reach me: [𝙽𝙸𝚂𝙷𝙸𝚃𝙷𝚁𝙴𝙳𝙳𝙸](https://t.me/FIDO_RAJA)
 
 
 
