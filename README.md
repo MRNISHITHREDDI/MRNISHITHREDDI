@@ -1,16 +1,21 @@
-### Hi there 👋
+### 𝙷𝙴𝙻𝙻𝙾 𝙸𝙰𝙼 𝙼𝚁_𝙽𝙸𝚂𝙷𝙸𝚃𝙷_𝚁𝙴𝙳𝙳𝙸
 
-<!--
-**MRNISHITHREDDI/MRNISHITHREDDI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- 🔭 I’m currently working on Telegram Bots
 
-Here are some ideas to get you started:
+- 🌱 I’m currently learning Python
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
+- 📌 Aim To Become Developer 
+
 - 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+- 📫 How to reach me: [𝙽𝙸𝚂𝙷𝙸𝚃𝙷𝚁𝙴𝙳𝙳𝙸](htpps://t.me/FIDO_RAJA
+
+
+
+
+
+
+
+
+
+
