@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on my studies
 
-- 🌱 I’m currently learning java
+- 🌱 I’m currently learning HTML
 
 - 📌 Aim To Become Developer 
 
