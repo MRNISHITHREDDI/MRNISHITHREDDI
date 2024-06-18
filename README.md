@@ -6,10 +6,6 @@
 
 - 📌 Aim To Become Developer 
 
-- 💬 Ask me about ...
-
-- 📫 How to reach me: [𝙽𝙸𝚂𝙷𝙸𝚃𝙷𝚁𝙴𝙳𝙳𝙸](https://t.me/hey)
-
 
 
 
