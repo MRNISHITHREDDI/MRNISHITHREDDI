@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on my studies
 
-- 🌱 I’m currently learning HTML
+- 🌱 I’m currently learning React JS
 
 - 📌 Aim To Become Developer 
 
